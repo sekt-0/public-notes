@@ -104,3 +104,9 @@
 * 2027/07/17（土）～2027/09/12（日）
 * [https://art.nikkei.com/michizane/](https://art.nikkei.com/michizane/)
 	* 九州国立博物館に巡回予定
+
+### 鳥獣戯画（仮称）
+- **サントリー美術館**
+- 2027/09/15（水）～2027/10/24（日）
+- https://www.suntory.co.jp/sma/exhibition/future.html
+
