@@ -101,6 +101,11 @@
 * [https://grand-van-gogh.com/The-Langlois-Bridge-at-Arles/](https://grand-van-gogh.com/The-Langlois-Bridge-at-Arles/)
 	* 2027/10〜2028/01は上野の森美術館
 
+### ARTIZON NOW ひろがる、つながる、コレクション
+* **アーティゾン美術館**
+* 2027/02/23（火祝）〜2027/05/30（日）
+* [https://www.artizon.museum/exhibition/detail/615](https://www.artizon.museum/exhibition/detail/615)
+
 ### 京都国立博物館開館130周年記念 特別展　大狩野派
 * **京都国立博物館**
 * 室町〜桃山：2027/04/20（火）～2027/05/30（日）
